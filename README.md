@@ -1,1 +1,1 @@
-# ketto26.ketto26.github.io
+https://ketto26.github.io/index.html
